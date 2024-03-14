@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ANJO0JOJU
+- 👋 Hi, I’m @ANJO JOJU
 - 👀 I’m interested in UX UI Designing
 - 🌱 I’m currently learning Full Stack
 - 💞️ I’m looking to collaborate on UX UI
