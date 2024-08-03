@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Full Stack
 - 💞️ I’m looking to collaborate on UX UI
 - 📫 How to reach me anjojojupersonal@gmail.com
-- 😄 Pronouns: UX DZYNR
+- 😄 Pronouns: ANJO UX DSYNR
 - ⚡ Fun fact: Planning is Designing
 
 <!---
